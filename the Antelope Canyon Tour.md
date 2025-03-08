@@ -1,5 +1,6 @@
 **Antelope Canyon Tour: A Comprehensive Guide to One of Earth's Most
 Stunning Natural Wonders**
+![antelop tour](https://github.com/user-attachments/assets/75dd08cf-a20f-4c33-82f6-b881941c3855)
 
 Nestled in the heart of the American Southwest, Antelope Canyon is a
 mesmerizing slot canyon renowned for its undulating sandstone walls,
