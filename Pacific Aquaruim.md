@@ -1,9 +1,7 @@
 Exploring the Aquarium of the Pacific and the Ultimate Booking Companion
+
 ![Image](https://github.com/user-attachments/assets/10499528-dc83-49ee-935d-c5fe69640a7d)
 ------------------------------------------------------------------------
-
-\[Aquarium-of-the-Pacific.png\](https://postimg.cc/Lq5QkQpY)
-\[!\[Aquarium-of-the-Pacific.png\](https://i.postimg.cc/W4wRvxYn/Aquarium-of-the-Pacific.png)\](https://postimg.cc/Lq5QkQpY)
 
 Nestled in Long Beach, California, the **Aquarium of the Pacific**
 stands as a beacon of marine conservation and education, inviting
