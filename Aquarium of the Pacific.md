@@ -16,7 +16,7 @@ your adventure.
 
 ------------------------------------------------------------------------
 
-### **A Window into the Pacific's Marine Marvels** {#-a-window-into-the-pacific-s-marine-marvels-}
+ A Window into the Pacific's Marine Marvels 
 
 The Aquarium of the Pacific is divided into three main galleries, each
 dedicated to a distinct region of the Pacific: the **Tropical Pacific**,
@@ -43,7 +43,7 @@ California---dart among swaying fronds.
 
 ------------------------------------------------------------------------
 
-### **Beyond the Tanks: Education and Conservation** {#-beyond-the-tanks-education-and-conservation-}
+ Beyond the Tanks: Education and Conservation 
 
 The Aquarium of the Pacific isn't just a place to observe marine
 life---it's a hub for education and advocacy. Daily presentations, such
@@ -66,7 +66,7 @@ mission: to inspire stewardship of the ocean.
 
 ------------------------------------------------------------------------
 
-### **Viator: Your All-Inclusive Gateway to the Aquarium** {#-viator-your-all-inclusive-gateway-to-the-aquarium-}
+ Viator: Your All-Inclusive Gateway to the Aquarium 
 
 Planning a trip to the Aquarium of the Pacific is effortless with
 **[Viator](https://www.viator.com/searchResults/all?text=Aquarium%20of%20the%20Pacific&pid=P00239761&mcid=42383&medium=link&medium_version=selector)**,
@@ -94,7 +94,7 @@ truly matters: exploring the wonders of the Pacific.
 
 ------------------------------------------------------------------------
 
-### **Tips for an Unforgettable Visit** {#-tips-for-an-unforgettable-visit-}
+ Tips for an Unforgettable Visit** {#-tips-for-an-unforgettable-visit-}
 
 -   **Timing**: Arrive early to beat crowds and catch the first feeding
     session.
