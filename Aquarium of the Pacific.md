@@ -1,6 +1,7 @@
 **Title:** *\"Exploring the Aquarium of the Pacific\"*
-------------------------------------------------------------------------
+![Aquarium of the Pacific](https://github.com/user-attachments/assets/2c3ae52e-9231-4f6f-9853-3a8ed47b2d1a)
 
+------------------------------------------------------------------------
 Nestled in Long Beach, California, the **Aquarium of the Pacific**
 stands as a beacon of marine conservation and education, inviting
 visitors to embark on an underwater journey through the diverse
