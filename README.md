@@ -1,2 +1,3 @@
 # travelxperiences.com
-![Image](https://github.com/user-attachments/assets/10499528-dc83-49ee-935d-c5fe69640a7d)
+![Aquarium of the Pacific](https://github.com/user-attachments/assets/c0fa6054-10d2-4cb6-af4f-d25e067a3920)
+ 
