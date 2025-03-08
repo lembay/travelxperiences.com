@@ -1,5 +1,6 @@
 **Title:** *\"Exploring the Aquarium of the Pacific\"*
 ------------------------------------------------------------------------
+
 Nestled in Long Beach, California, the **Aquarium of the Pacific**
 stands as a beacon of marine conservation and education, inviting
 visitors to embark on an underwater journey through the diverse
