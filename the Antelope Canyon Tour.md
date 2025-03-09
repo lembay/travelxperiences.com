@@ -12,8 +12,6 @@ canyon, this guide will equip you with essential insights, practical
 tips, and the tools to make the most of your Antelope Canyon tour.
 
 ------------------------------------------------------------------------
-
-::: {vi-partner-id="P00239761" vi-widget-ref="W-5987ea4d-a878-48c3-b659-01c80c8d2211"}
 :::
 
 ### **I. Introduction to Antelope Canyon: Nature's Sculpted Masterpiece** {#-i-introduction-to-antelope-canyon-nature-s-sculpted-masterpiece-}
