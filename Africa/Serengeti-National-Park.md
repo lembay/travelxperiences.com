@@ -1,4 +1,4 @@
-<h1>Serengeti National Park: Africa's Wildlife Epicenter<h1/>
+Serengeti National Park: Africa's Wildlife Epicenter
 
 The Serengeti National Park, a UNESCO World Heritage Site, symbolises
 Africa's untamed wilderness. Stretching over 14,750 square kilometres in
