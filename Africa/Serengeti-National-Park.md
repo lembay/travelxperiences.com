@@ -1,3 +1,5 @@
+![tanzania](https://github.com/user-attachments/assets/923b08fc-4902-46c2-bfdd-4b0a3ac8aab0)
+
 Serengeti National Park: Africa's Wildlife Epicenter
 
 The Serengeti National Park, a UNESCO World Heritage Site, symbolises
