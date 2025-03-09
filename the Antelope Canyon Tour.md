@@ -126,9 +126,7 @@ for guaranteed slots.
 **A. Horseshoe Bend**\
 Just 10 minutes from Antelope Canyon, this iconic Colorado River bend
 draws 4.3 million annual visitors. Combine your visit with a
-
 [Viator](https://www.viator.com/searchResults/all?text=Antelope%20Canyon&pid=P00239761&mcid=42383&medium=link&medium_version=selector)
-
 ) bundle for savings.
 
 **B. Lake Powell**\
@@ -166,9 +164,7 @@ Antelope Canyon is more than a destination---it's an immersive journey
 into nature's artistry and Indigenous heritage. By planning
 strategically with platforms like 
 [Viator](https://www.viator.com/searchResults/all?text=Antelope%20Canyon&pid=P00239761&mcid=42383&medium=link&medium_version=selector)
-
-, you can enjoy a
-seamless, budget-friendly adventure that blends education, safety, and
+, you can enjoy a seamless, budget-friendly adventure that blends education, safety, and
 awe-inspiring beauty.
 
 **Photorealistic AI Image Prompt**:\
@@ -181,7 +177,4 @@ dynamic range, 8K resolution.\"
 ------------------------------------------------------------------------
 
 *Ready to explore? Book your Antelope Canyon tour today on
-
-[Viator](https://www.viator.com/searchResults/all?text=Antelope%20Canyon&pid=P00239761&mcid=42383&medium=link&medium_version=selector)
-
- and unlock unforgettable memories.*
+[Viator](https://www.viator.com/searchResults/all?text=Antelope%20Canyon&pid=P00239761&mcid=42383&medium=link&medium_version=selector) and unlock unforgettable memories.*
