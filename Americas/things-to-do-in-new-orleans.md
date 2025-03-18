@@ -1,4 +1,7 @@
-Top Things to Do in New Orleans: Must-See Attractions and Hidden Gems<p><img src=''https://www.dropbox.com/scl/fi/bnp2gez9da5unzowtbfd1/5.-Things-to-do-in-Austin.png?rlkey=evb9fanroazzrd6vfbiqwxixx&st=11v2vh2s&dl=0''></p>Lost in New Orleans? 12 Must-Try Adventures Without Breaking the Bank  
+![1  Things to do in New Orleans](https://github.com/user-attachments/assets/bab0bf8a-4257-4f44-84fb-d9e9a79f7adc)
+Top Things to Do in New Orleans: Must-See Attractions and Hidden Gems 
+
+Lost in New Orleans? 12 Must-Try Adventures Without Breaking the Bank  
 
 New Orleans. It’s got jazz that’ll make your soul vibrate, food that could cure homesickness, streets packed with ghosts and stories older than your grandma’s recipes… but how do you even start? Planning a trip here? Let’s get honest: it’s easy to drown in options. Street parades, cemeteries where tombs look like dollhouses, bars older than your parents—where’s the best entry point? And let’s talk budget—can I enjoy this holy chaos *without* flashing credit cards like it’s Mardi Gras?  
 
