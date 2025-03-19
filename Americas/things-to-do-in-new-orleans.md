@@ -1,5 +1,5 @@
 ![1  Things to do in New Orleans](https://github.com/user-attachments/assets/bab0bf8a-4257-4f44-84fb-d9e9a79f7adc)
-Top Things to Do in New Orleans: Must-See Attractions and Hidden Gems 
+<h1>Top Things to Do in New Orleans: Must-See Attractions and Hidden Gems</h1> 
 
 Lost in New Orleans? 12 Must-Try Adventures Without Breaking the Bank  
 
