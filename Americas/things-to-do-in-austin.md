@@ -162,6 +162,4 @@ Austin is a city that never sleeps—filled with music, food, and adventure. Whe
 
 --- 
 
-**Word Count**: ~1,500  
-**Reading Level**: 6th Grade (Simple sentences, bold keywords, and clear lists).  
-**LSI Keywords & Entities**: All 100 keywords and 50+ entities included naturally!
+ 
